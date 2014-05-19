@@ -3,7 +3,7 @@ Schedule for 5/19, External Reviews
 
 4:20-4:30: Wee Chuan and Andy Chua
 
-4:30-4:40: Helen Hastings, Rachel Grau, and Matt Rolfo
+4:30-4:40: Helen Hastings, and Matt Rolfo
 
 4:40-4:50: Eduardo Baer and Harrison Chilton
 
