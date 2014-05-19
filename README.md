@@ -19,6 +19,8 @@ Schedule for 5/19, External Reviews
 
 5:40-5:50: Josh Beal and Matthew Arkin
 
+5:50-6:00: Eric Smalls
+
 
 
 
